@@ -1,2 +1,2 @@
-# ritalization.github.io
-My own website project
+# Ritalicious up to some schenenigans
+hehe
